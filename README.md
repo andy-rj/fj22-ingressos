@@ -1,1 +1,1 @@
-"Anderson Napole∆o de Mello" 
+Anderson Napoleao de Mello
